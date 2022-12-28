@@ -1,3 +1,3 @@
 'sup douche nozzle.
-i ain't got nothin' public o'er here, sorry. maybe if i wasn't a lazy asshole you'd see some of my personal garbage, but unfortunately the world is a cruel place.
-and i am a lazy asshole.
+I ain't got nothin' public o'er here, sorry. If i wasn't such a lazy asshole, maybe you'd see some of my personal garbage. Unfortunately, the world is a cruel place,
+and I am a lazy asshole.
